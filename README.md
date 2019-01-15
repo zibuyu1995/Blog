@@ -4,6 +4,6 @@
 
 # about me
 * Email: zibuyu1995
-* Site: www.eds1995.cn
+* Site: www.eds1995.com
 * Nickname: Mousse
 
